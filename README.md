@@ -1,1 +1,1 @@
-Coba bikin resep cookies
+Coba bikin resep
